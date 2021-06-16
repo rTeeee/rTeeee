@@ -1,4 +1,4 @@
-### I do stuff when i feel like it
+### Coding new stuff soon
 
-shoutout rat lovers inc
+cuz of recent leaks :eyes:
 
