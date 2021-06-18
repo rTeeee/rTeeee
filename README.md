@@ -1,4 +1,3 @@
-### Coding new stuff soon
+### hey
 
-cuz of recent leaks :eyes:
 
